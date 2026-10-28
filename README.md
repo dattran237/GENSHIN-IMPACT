@@ -1,0 +1,2 @@
+# GENSHIN-IMPACT
+TRẦN QUỐC ĐẠT
